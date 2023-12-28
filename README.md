@@ -9,4 +9,4 @@ https://youtu.be/_pdFrtjlZak
 https://docs.google.com/presentation/d/1BlTW7-JNSUkylYdnBIsrb22mTsizDT-7/edit?usp=sharing&ouid=116381979396859998667&rtpof=true&sd=true
 
 ## Ссылка на отчет:
-https://drive.google.com/file/d/1U1LeuTpgIkqpFayOXlhITY-NZjx2awUs/view?usp=sharing
+https://drive.google.com/file/d/1Wd8uHk0FfTvTSrxkJvAMV27WSgOC8sSa/view?usp=sharing
